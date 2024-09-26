@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @InvertedJagdpanther
+- 👀 I’m interested in modding CoH2.
+- 🌱 I’m only here for modding CoH2 with my buds. Womp womp.
+-  This is all your fault Ribs.
+- 💞️ I’m looking to collaborate on modding CoH2. Duh.
+- 📫 You can probably find me on CoH2 discord servers.
+- 😄 Pronouns: High Explosive/Steel Fragmentation
+- ⚡ Fun fact: I FREAKING LOVE THE B-4 
